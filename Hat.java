@@ -9,3 +9,10 @@
 //You could wear it in all season
 
 //It is cool
+
+//i dont like to wear hat
+
+//I dont feel good in it
+
+//it is fun
+
